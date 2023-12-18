@@ -27,6 +27,7 @@
 - 📬 How to reach me: **[Linkedin](https://www.linkedin.com/in/sai-janani/)**
 - 🧗 I try to: Get better each and everyday
 - ⚡ Fun fact: I love connecting with different people :raised_hands:
+- Find my reading list : **[GoodReads](https://www.goodreads.com/list/show/195704.2024_Reading_List_Sai_Janani)**
 
 <br>
 
