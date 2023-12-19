@@ -5,7 +5,7 @@
 </p>
 
 <p>
-  <h4 align="center"><b>"Chai ☕,Code 👩‍💻,Fitness 🧘🏻‍♀️ & Books 📚"</b></h4>
+  <h4 align="center"><b>"Chai ☕,Code 👩‍💻,Fitness 🧘🏻‍♀️, Travel 🗺️ & Books 📚"</b></h4>
 </p>
 
 
