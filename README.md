@@ -22,7 +22,7 @@
 ### I am a Software Engineer at Microsoft
 - 🌱 I’m currently working on open source projects and learning along the way :grin:
 - 👯 I’m looking to collaborate with other Developers :wink:
-- 🥅 2024 Goals : Be consistent
+- 🥅 2025 Goals : Be consistent
 - 💬 Ask me about anything, I am happy to help :smile:
 - 📬 How to reach me: **[Linkedin](https://www.linkedin.com/in/sai-janani/)**
 - 🧗 I try to: Get better each and everyday
